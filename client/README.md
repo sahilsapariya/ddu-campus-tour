@@ -1,2 +1,0 @@
-# DDU Campus Tour
-
